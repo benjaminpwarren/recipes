@@ -3,26 +3,26 @@
 ###Shopping List
 ####Fruit & Veg section
 
-Medium brown onion
+*Medium brown onion
 
 ####Cold Section
 
-250g packet of grated parmesan
+*250g packet of grated parmesan
 
 ####Meat Dept
 
-700-800g of Mince
+*700-800g of Mince
 
 ###Supermarket Shelves
 
-2 x packets of instant white sauce (this can be tricky to find, cheese sauce can be substituted). Any brand, but I generally use Maggi
-1 x packet instant lasagne sheets. Any size, but look at the dish you're going to use
-1 x Large Jar of Dolmio Pasta Sauce in Spring or Farmhouse Vegetable
+*2 x packets of instant white sauce (this can be tricky to find, cheese sauce can be substituted). Any brand, but I generally use Maggi
+*1 x packet instant lasagne sheets. Any size, but look at the dish you're going to use
+*1 x Large Jar of Dolmio Pasta Sauce in Spring or Farmhouse Vegetable
 
 ##In your Pantry
 
-  Olive oil
-  Minced Garlic
+*Olive oil
+*Minced Garlic
 
 ##Method
 
